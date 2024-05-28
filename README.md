@@ -1,15 +1,15 @@
 
 ━━━━━━━━━━━━━━━━━━━━
 
-👋 Hi I'm Dev 💗👀
+- 👋 Hi I'm Dev 💗👀
 
-I'm interested in your mom niche dekh📍chutiye❤️
+- I'm interested in your mom niche dekh📍chutiye❤️
 
-𝙿𝙾𝚆𝙴𝚁𝙳 By your mom🔥
+- 𝙿𝙾𝚆𝙴𝚁𝙳 By your mom🔥
 
 
 
-[mom](https://t.me/TheFriendsChatting)
+- [mom](https://t.me/TheFriendsChatting)
 
 - 🌱 I’m currently learning python
 
