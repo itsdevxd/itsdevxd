@@ -5,7 +5,7 @@
 
 I'm interested in your mom niche dekh📍chutiye❤️
 
-𝙿𝙾𝚆𝙴𝚁𝙳 By your #mom🔥">
+𝙿𝙾𝚆𝙴𝚁𝙳 By your mom🔥
 
 
 
