@@ -1,10 +1,10 @@
 - 👋 Hi, I’m dev
-- 👀 I’m interested in your [mom]
+- 👀 I’m interested in your [mom](https://t.me/TheFriendsChatting)
 - 🌱 I’m currently learning python
 
 Meet me here -> [Dev](https://t.me/btw_devx)
 
-
+❤️+🔥
 
 
 <!---
